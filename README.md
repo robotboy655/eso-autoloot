@@ -1,0 +1,1 @@
+Original Addon Link: https://www.esoui.com/downloads/info1127-SmarterAutoLootS.A.L..html 
